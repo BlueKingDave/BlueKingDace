@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Davidroyblue
+- 👋 Hi, I’m David
 - 👀 I’m interested in crypto, psychology, business administration
 - 🌱 I’m currently learning all of the above
 - 💞️ I’m looking to collaborate on crypto projects
